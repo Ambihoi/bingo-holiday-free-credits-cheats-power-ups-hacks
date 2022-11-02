@@ -1,2 +1,5 @@
-# bingo-holiday-free-credits-cheats-power-ups-hacks
-Bingo Holiday free credits Cheats codes unlimited power ups Hacks level up
+# Bingo Holiday free credits Cheats codes unlimited power ups Hacks level up
+
+Bingo Holiday free credits Cheats codes unlimited power ups Hacks level up - In Bingo, combining four tiles into a row or column will produce a frost wave. This tile destroys the entire row or column according to the direction it faces when used. Unlike the fixed line bombs in most other three games, the frost wave changes direction after each round. Take advantage of this. When using, the rocket will destroy four tiles around it, and then fly to a random area on the chessboard to destroy another tile in your target. Five or more tiles of the same color arranged in a cross or T-shape will form an ice cream bomb. This will cause an explosion and destroy multiple tiles in the area. The more tiles you use to make ice cream bombs, the bigger the explosion. Remember that you can combine different special tiles to create different effects. For example, combining ice cream waves with ice cream bombs will destroy three rows or three columns instead of one. bingo holiday cash out
+
+[see here](https://fengmod.top/bingo-holiday/)
